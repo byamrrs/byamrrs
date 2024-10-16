@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @byamrrs
 - 👀 I’m interested in sonegar imposto
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning formas faceis de tortura
 - 💞️ I’m looking to collaborate on ninguém 
 - 📫 How to reach me ...
 - 😄 Pronouns: ela/dela
